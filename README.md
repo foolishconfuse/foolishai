@@ -1,0 +1,2 @@
+# foolishai
+foolish ai
